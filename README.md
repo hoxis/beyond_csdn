@@ -31,7 +31,7 @@ GitHub 仓库空间有限，所以如何存储已下载资源是个难题。
 
 2、现在，我建立了资源下载群，大家有想下载的资源，也可以加我微信：
 
-![我的微信](https://blog-1254259578.cos.ap-shanghai.myqcloud.com/picgo/20181025132616.png)
+![我的微信](https://blog-1254259578.cos.ap-shanghai.myqcloud.com/picgo/hoxis.jpg)
 
 3、也欢迎手头有积分、或者是 VIP 朋友，加入到贡献行列。
 
